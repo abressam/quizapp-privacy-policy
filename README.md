@@ -1,0 +1,1 @@
+# quizapp-privacy-policy
